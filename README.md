@@ -1,1 +1,0 @@
-Logan Dillworth ECS Portfolio
